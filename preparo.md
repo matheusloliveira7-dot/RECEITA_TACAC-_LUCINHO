@@ -1,0 +1,11 @@
+# Modo de Preparo
+- coloque o tucupi em uma panela com o alho bem amassado, o sal, a chicória e as pimentas;
+- Leve ao fogo;
+- Quando começar a ferver, abaixe o fogo, tampe a panela e deixe cozinhar por 30 minutos aproximadamente;
+- Simultaneamente em outro panela, cozinhe o jambu até ficar tenro;
+- Retire do fogo, escorre e reserve;
+- Lave bem os camarões e leve-os ao fogo em uma panela com 4 xícaras de água;
+- Deixe ferver por aproximadamente 5 minutos;
+- Retire a cabeça e a casca;
+- Em uma panela, misture o polvilho com água dos camarôes, leve ao fogo e mexa até obter um mingau;
+- Sirva em uma cuia com concha de tucupi, um pouco do mingau, algumas folhas de jambu e os camarões.
