@@ -8,4 +8,4 @@
 - Deixe ferver por aproximadamente 5 minutos;
 - Retire a cabeça e a casca;
 - Em uma panela, misture o polvilho com água dos camarôes, leve ao fogo e mexa até obter um mingau;
-- Sirva em uma cuia com concha de tucupi, um pouco do mingau, algumas folhas de jambu e os camarões.
+- Sirva em uma cuia com concha de tucupi, um pouco do mingau, algumas folhas de jambu e os camarões!!!!!!!!
